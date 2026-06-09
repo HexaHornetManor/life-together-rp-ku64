@@ -1,4 +1,4 @@
-#  
+#  exclusive Script for life together rp offers the most advanced life together rp Script, with no cooldown and private server access. Perfect for
 
 
 
